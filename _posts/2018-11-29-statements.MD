@@ -134,16 +134,6 @@ In the last weeks I closely followed through international media the  hard measu
 
 在过去的几个星期里，我通过国际媒体密切关注着中国警察与政府在深圳佳士科技成立工会失败后对学生与工人们采取的措施。中国道路的社会主义宣称将要提高中国人民的生活水准，全世界都希望看到中国通过和平的方式达到这一目的。工人们能组织起来，与工人团结在一起的学生们能够发出声音，这两点都是十分重要的。因此，我要求中国警察与政府释放被捕的工人与学生，并容许就工作条件进行公开讨论。卡尔·马克思坚信社会主义与共产主义社会需要公开的讨论来发现并解决社会中出现的问题，从而能够创造出一个对全人类来说都更好的社会。
 
-### Ulrich Brand 
-
-**Professor and Chair of International Politics, University of Vienna, Austria**
-
-In the last weeks I closely followed through international media the  hard measures the Chinese police and government are taken against  stundents and workers in the aftermath of the attempt of workers to form  a trade union at Jasic Shenzhen Technology Co., Ltd (Jasic). The Chinese way to socialism claims to improve the living conditions of Chinese people and the whole world looks on China to reach this peacefully. It is important that workers can organise and the students can raise their voices when they are in solidarity with workers. Therefore, I ask the Chinese police and government to set the imprisoned workers and students free and to enable an open debate about problematic working conditions. Karl Marx also insisted that a socialist and communist society required open discussions to detect and solve problems that emerge on the way to create a better society for all.
-
-**乌里奇·布兰德（Ulrich Brand），维也纳大学国际政治学教授**
-
-在过去的几个星期里，我通过国际媒体密切关注着中国警察与政府在深圳佳士科技成立工会失败后对学生与工人们采取的措施。中国道路的社会主义宣称将要提高中国人民的生活水准，全世界都希望看到中国通过和平的方式达到这一目的。工人们能组织起来，与工人团结在一起的学生们能够发出声音，这两点都是十分重要的。因此，我要求中国警察与政府释放被捕的工人与学生，并容许就工作条件进行公开讨论。卡尔·马克思坚信社会主义与共产主义社会需要公开的讨论来发现并解决社会中出现的问题，从而能够创造出一个对全人类来说都更好的社会。
-
 ### Slavoj Žižek
 
 I thereby declare that I openly condemn the Chinese state's crackdown on workers and students who try to organize themselves to protect workers' rights.
