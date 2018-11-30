@@ -7,6 +7,10 @@ layout: post
 
 如下的数则声明是部分马克思主义与泛左翼学者就中国政府镇压佳士工人运动和参与运动的左翼学生一事而发表的，按照作出声明的时间顺序排列。我们在这里同时发布声明原文和中文译文。在这些声明中，学者们呼吁抵制中国官方赞助的世界马克思主义大会和其它与马克思主义相关的学术会议，因为中国政府的所作所为已经违背了马克思主义的基本精神。目前，仍不断有左翼学者作出声明，加入抵制的行列。我们将在这个合集中不断发布最新的声明原文和中文译文。
 
+声明集合也会在如下网址同步更新：
+
+[supportingjasicworkers.wordpress.com]([https://supportingjasicworkers.wordpress.com)
+
 ### John Roemer
 
 **Elizabeth S. and A. Varick Stout Professor of Political Science and Economics, Yale University**
@@ -129,6 +133,3 @@ In the last weeks I closely followed through international media the  hard measu
 
 在过去的几个星期里，我通过国际媒体密切关注着中国警察与政府在深圳佳士科技成立工会失败后对学生与工人们采取的措施。中国道路的社会主义宣称将要提高中国人民的生活水准，全世界都希望看到中国通过和平的方式达到这一目的。工人们能组织起来，与工人团结在一起的学生们能够发出声音，这两点都是十分重要的。因此，我要求中国警察与政府释放被捕的工人与学生，并容许就工作条件进行公开讨论。卡尔·马克思坚信社会主义与共产主义社会需要公开的讨论来发现并解决社会中出现的问题，从而能够创造出一个对全人类来说都更好的社会。
 
-声明集合也会在如下网址同步更新：
-
-[supportingjasicworkers.wordpress.com]([https://supportingjasicworkers.wordpress.com)
