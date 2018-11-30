@@ -22,3 +22,7 @@ https://spectre-rpemc.github.io/2018/11/29/statements.html
 理查德·史密斯（Richard Smith, 独立学者）
 
 弗雷德里克·诺伊豪泽尔（Frederick Neuhouser, Columbia University）
+
+如果链接被社交软件屏蔽，可以尝试将链接复制到浏览器中查看：
+
+https://spectre-rpemc.github.io/
