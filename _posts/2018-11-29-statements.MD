@@ -48,9 +48,15 @@ At the School of Labor and Urban Studies at the City University of New York wher
 
 **Laureate Professor of Linguistics, University of Arizona**
 
+### Joined by: Samuel Farber
+
+**Emeritus Professor of Political Science, Brooklyn College of CUNY**
+
 The Chinese government's crackdown on workers, labor activities and leftist students in recent weeks is deeply troubling. It comes into sharp contrast with how the Chinese government has been using Marxism as the main tool of ideological legitimation. To continue to participate in China's World Congress of Marxism and other officially sponsored Marxism-related events means we would stay complicit in the Chinese government's game. Leftist scholars around the world should join the boycott of such conferences and events.
 
 **诺姆·乔姆斯基（Noam Chomsky），亚利桑那大学语言学教授**
+
+**联名：萨缪尔·法比尔（Samuel Farber），纽约市立大学布鲁克林学院政治学荣休教授**
 
 最近几星期以来，中国政府对工人、劳工活动分子与左翼学生的打击令人深感不安。中国政府用马克思主义作为维系意识形态合法性的主要工具，而这种打击与之形成了尖锐的冲突。如果我们继续参与中国的世界马克思主义大会与其它官方赞助的马克思主义相关的活动，那就意味着我们成为了中国政府的这种勾当的同谋。全世界的左翼学者都应该参与抵制这类会议与活动。
 
@@ -194,3 +200,37 @@ I join other fellow scholars in condemning the Chinese government's recent crack
 **弗雷德里克·诺伊豪泽尔（Frederick Neuhouser），哥伦比亚大学巴纳德学院哲学系教授，德国研究系 Viola Manderfeld 荣誉教授**
 
 我和其他学者一起谴责中国政府最近对参与深圳佳士工人工会化运动的工人、学生活动分子的打压。对一个积极将马克思主义作为意识形态工具来证明权力合法性的国家来说，这非常讽刺。因此我支持抵制中国的世界马克思主义大会，以及中国政府支持的其他类似会议。学术不应该成为国家政治压迫的同谋.
+
+### Steven Lukes
+
+**Professor of Sociology, New York University**
+
+### Joined by: 
+
+### Nancy Fraser
+
+**Loeb Professor of Philosophy and Politics, New School for Social Research**
+
+### Brian Leiter
+
+**Karl N. Llewellyn Professor of Jurisprudence, University of Chicago**
+
+Reports of the Chinese state's repression of workers seeking to form a union and of students who support them in Shenzhen are most disturbing. Scholars and students outside China should show solidarity with the victims of this ominous crackdown by boycotting public events concerning Marxism in China.
+
+**斯蒂文·卢克斯 (Steven Lukes), 纽约大学社会学教授**
+
+**联名：南希·弗里泽 (Nancy Fraser), 社会研究新学院哲学与政治学讲席教授**
+
+**布莱恩·里特 (Brian Leiter), 芝加哥大学法理学讲席教授**
+
+中国政府打压试图组建工会的深圳工人和支持工人的学生，这一系列报道令人极其忧虑。中国境外的学者和学生应该和这场严酷的镇压行动中的受害者们团结地站在一起，抵制在中国举办的与马克思主义有关的公共活动。
+
+### Wendy Brown
+
+**Professor of Political Science, University of California, Berkeley**
+
+The very possibility of a future for our troubled world rests in the capacity of workers and responsible intellectuals to organize and speak.  Repression of either is unacceptable, and outsiders to this battle must not be complicit with it.
+
+**温迪·布朗（Wendy Brown），加州大学伯克利大学政治学系教授**
+
+我们这个满是问题的世界的未来，取决于工人和负责任的知识分子组织和发声的能力。对任何一者的压迫都是不可接受的，在这场战斗之外的人不应该成为共谋。
