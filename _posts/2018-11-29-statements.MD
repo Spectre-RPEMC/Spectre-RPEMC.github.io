@@ -9,7 +9,7 @@ layout: post
 
 声明合集也会在如下网址同步更新：
 
-[https://supportingjasicworkers.wordpress.com]([https://supportingjasicworkers.wordpress.com)
+[https://supportingjasicworkers.wordpress.com](https://supportingjasicworkers.wordpress.com)
 
 ### John Roemer
 
