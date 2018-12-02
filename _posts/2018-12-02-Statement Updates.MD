@@ -15,7 +15,9 @@ https://spectre-rpemc.github.io/2018/11/29/statements.html
 
 斯蒂文·卢克斯（Steven Lukes, New York University）
 
-南希·弗里泽 (Nancy Fraser, New School)与布莱恩·里特 (Brian Leiter, University of Chicago)与斯蒂文·卢克斯联名
+南希·弗里泽 (Nancy Fraser, New School, 与斯蒂文·卢克斯联名)
+
+布莱恩·里特 (Brian Leiter, University of Chicago, 与斯蒂文·卢克斯联名)
 
 温迪·布朗（Wendy Brown, University of California, Berkeley）
 
