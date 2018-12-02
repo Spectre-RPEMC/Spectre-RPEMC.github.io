@@ -52,23 +52,7 @@ At the School of Labor and Urban Studies at the City University of New York wher
 
 **Emeritus Professor of Political Science, Brooklyn College of CUNY**
 
-The Chinese government's crackdown on workers, labor activities and leftist students in recent weeks is deeply troubling. It comes into sharp contrast with how the Chinese government has been using Marxism as the main tool of ideological legitimation. To continue to participate in China's World Congress of Marxism and other officially sponsored Marxism-related events means we would stay complicit in the Chinese government's game. Leftist scholars around the world should join the boycott of such conferences and events.
-
-**诺姆·乔姆斯基（Noam Chomsky），亚利桑那大学语言学教授**
-
-**联名：萨缪尔·法比尔（Samuel Farber），纽约市立大学布鲁克林学院政治学荣休教授**
-
-最近几星期以来，中国政府对工人、劳工活动分子与左翼学生的打击令人深感不安。中国政府用马克思主义作为维系意识形态合法性的主要工具，而这种打击与之形成了尖锐的冲突。如果我们继续参与中国的世界马克思主义大会与其它官方赞助的马克思主义相关的活动，那就意味着我们成为了中国政府的这种勾当的同谋。全世界的左翼学者都应该参与抵制这类会议与活动。
-
-### Bridget Fowler
-
-**Professor Emerita of Sociology, University of Glasgow**
-
-Please note my boycott of this Congress [World Congress of Marxism] in the light of the Chinese State's crackdown on labour and student activists in Shenzhen. I am actively involved in the movement for socialism in Britain and internationally, and might well have decided to visit China for the Congress in order to debate aspects of Marxism. However, I regard the right to unionisation to represent workers' grievances, to  free speech and to lawyers (especially when under arrest) as crucial for an emancipated society. It seems these procedures are being flouted in this case, which - sadly - helps to undermine the case globally for anti-capitalist goals.
-
-**布里奇特·福勒（Bridget Fowler），格拉斯哥大学社会学教授**
-
-鉴于中国对劳工与学生活动分子的打击，请接受我对这一会议（即世界马克思主义大会）的抗议。我是不列颠地区和国际上社会主义运动的积极参与者，而且也曾有意去中国参与这一会议来探讨马克思主义的某些方面。然而，我将工人们参与工会以表达不满的权利、言论自由和邀请律师（尤其是在被拘留的情况下）的权利视为解放的社会的关键要素。看起来，中国政府在公然藐视这些常规，这很不幸地妨害了全球范围内反资本主义的目标。
+The Chinese government's crackdown on wox对这一会议（即世界马克思主义大会）的抗议。我是不列颠地区和国际上社会主义运动的积极参与者，而且也曾有意去中国参与这一会议来探讨马克思主义的某些方面。然而，我将工人们参与工会以表达不满的权利、言论自由和邀请律师（尤其是在被拘留的情况下）的权利视为解放的社会的关键要素。看起来，中国政府在公然藐视这些常规，这很不幸地妨害了全球范围内反资本主义的目标。
 
 ### Rebecca E. Karl
 
@@ -160,6 +144,9 @@ Slavoj Zizek, Ljubljana, November 28 2018
 
 It is heartening to see so many university students and labor activists supporting the Jasic workers in their fight to exercise their basic rights to form a union in their workplace. At the same time, the Chinese government, which has partly built its legitimacy on Marxist ideology, attacks students who have put their belief in Marxism in practice by joining hands with struggling workers. Therefore, I have decided to boycott the Congress till the government shows justice to the labor and student activists.
 
+**艾琳·鲍里斯（Eileen Boris），加利福尼亚大学圣芭芭拉分校荣誉教授**
+
+看见这么多的学生和劳工活动分子支持佳士工人行驶基本权利、在自己的工作场所建立工会，我感到十分振奋。同时，中国政府尽管将其合法性部分建立于马克思主义的基础之上，却因为学生们践行自己的马克思主义信念、与斗争的工人们团结起来而攻击他们。因此，我决定抵制该会议（即世界马克思主义大会），直至政府还劳工和学生活动分子以公正。
 
 ### Marc Blecher
 
