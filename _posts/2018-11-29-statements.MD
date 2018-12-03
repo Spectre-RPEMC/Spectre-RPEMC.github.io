@@ -222,7 +222,7 @@ Reports of the Chinese state's repression of workers seeking to form a union and
 
 **斯蒂文·卢克斯 (Steven Lukes), 纽约大学社会学教授**
 
-**联名：南希·弗里泽 (Nancy Fraser), 社会研究新学院哲学与政治学讲席教授**
+**联名：南希·弗雷泽 (Nancy Fraser), 社会研究新学院哲学与政治学讲席教授**
 
 **布莱恩·里特 (Brian Leiter), 芝加哥大学法理学讲席教授**
 
